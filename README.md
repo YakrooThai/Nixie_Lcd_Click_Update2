@@ -2,3 +2,21 @@
 
 # Nixie_Lcd_Click_Update Theme
 For Update Firmware
+
+https://www.youtube.com/watch?v=uNGb5rBC_Rk&t=4s
+
+https://www.youtube.com/watch?v=F_feOeh8EPA&t=87s
+
+https://www.youtube.com/watch?v=SYz_JsUdNQg&t=5s
+
+https://www.youtube.com/watch?v=HbwMp17rduE
+
+https://www.youtube.com/shorts/EK3MjSh-hBI
+
+https://www.youtube.com/shorts/QQDNThkZf5s
+
+https://www.youtube.com/watch?v=mYBtSVjrAF8
+
+https://www.youtube.com/watch?v=fD_uu7XovvY
+
+https://www.youtube.com/watch?v=UaurZd7Eckc
